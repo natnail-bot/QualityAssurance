@@ -27,7 +27,3 @@
 7. Change the ChangeMe Document. 
    1. Add your first and last name on one line.
    2. Do not delete others names.
-   3. Make any other SFW changes to the document that you'd like.  Note: there will be a full history of everyone who has made changes.
-10. 
-
-lol, my name is Curtis. What's your's?
